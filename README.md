@@ -8,4 +8,5 @@ Truyền động cơ dây đai Carbon không chỉ cải thiện đáng kể v�
 Đai truyền động carbon sạch, trơn tru, chắc chắn được thiết kế để đáp ứng nhu cầu của xe đạp điện. Được cấu tạo từ lớp ngoài polyurethane chịu được mọi thời tiết, dây đai hiệu suất cao tiên tiến có dây kéo bằng sợi carbon chắc chắn, không bị giãn.
 
 Nhờ sự kết hợp hoàn hảo giữa hệ thống truyền động dây đai carbon, cảm biến mô-men xoắn và khung nhôm siêu nhẹ, A20 Air mang lại trải nghiệm lái xe thoải mái và tiện lợi trong di chuyển nội thành. Với kích thước bánh 20 inch, A20 Air là người bạn đồng hành lý tưởng cho những chuyến du ngoạn xuyên thành phố.
+
 Xem thêm tại HT ebike: https://htebike.htskys.com/xe-dien-gap/xe-dap-tro-luc-dien-gap-gon-ado-a20-air/
